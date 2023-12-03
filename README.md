@@ -1,3 +1,2 @@
-- im pwoofy
-- i'm a furry
-- that's all you need to know about me :3 
+- i make a few roblox stuff
+- i'm still a student
